@@ -12,6 +12,6 @@ i also paint, draw and sew <3
 **𓂃˖˳·˖ ִֶָ ⋆🌷͙⋆  ִֶָ˖·˳˖𓂃 ִֶָ**
 on pt: im always active,sometimes offtab. w2i / c+h is fine as long as you dont come to harass me.
 also dni: shadowvanilla, and any darkships like that, tadc, kpdh, dandy,etc,, 
-**⊱ ────── {.⋅ 🌸 ⋅.} ───── ⊰**
+**𓂃˖˳·˖ ִֶָ ⋆🌷͙⋆  ִֶָ˖·˳˖𓂃 ִֶָ**
 also, use tonetags with me or js be patient i ain't autistic or smth but sometimes i just DONT want to be as talkative as i usually am heh
 ![h](https://files.catbox.moe/5z1bjt.jpg)
