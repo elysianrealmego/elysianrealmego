@@ -6,7 +6,7 @@
 ![h](https://files.catbox.moe/wobsjo.gif)~~pompom/blaze/bingo~~ ,, 
 he/she/they .
 ![h](https://files.catbox.moe/wobsjo.gif)im omnisexual ♡ i LOVE visual novels, otome, anything romance.
-                              ![h](https://files.catbox.moe/wobsjo.gif)i listen to visual kei: the gazette,jiluka,dexcore, kebyo, dadaroma,gulu gulu and so on.
+                                                                                 ![h](https://files.catbox.moe/wobsjo.gif)                                                                                                           ୨୧ i listen to visual kei: the gazette,jiluka,dexcore, kebyo, dadaroma,gulu gulu and so on.
                             ![h](https://files.catbox.moe/wobsjo.gif)i also paint, draw and sew <3
 ![h](https://files.catbox.moe/z3rp0h.gif)
 ![h](https://files.catbox.moe/c0xge9.jpg)
