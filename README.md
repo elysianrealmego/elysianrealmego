@@ -1,4 +1,4 @@
-![h](https://files.catbox.moe/5z1bjt.jpg)
+![h](https://files.catbox.moe/2j2mdq.png)
 ![h](https://files.catbox.moe/975lya.gif)
 “ **s**he has spread open her arms 2 love every part of *humanity*; be it strongest large parts 2 the fragile small parts. ”
 ![h](https://files.catbox.moe/h80yet.gif)
@@ -14,4 +14,4 @@ on pt: im always active,sometimes offtab. w2i / c+h is fine as long as you dont 
 also dni: shadowvanilla, and any darkships like that, tadc, kpdh, dandy,etc,, 
 ![h](https://files.catbox.moe/ggvj25.jpg) 
 also, use tonetags with me or js be patient i ain't autistic or smth but sometimes i just DONT want to be as talkative as i usually am heh
-![h](https://files.catbox.moe/5z1bjt.jpg)
+![h](https://files.catbox.moe/lz2wwd.png)
