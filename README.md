@@ -25,7 +25,7 @@ he/she/they .
 ![h](https://files.catbox.moe/wobsjo.gif)also, use tonetags with me or js be patient i ain't autistic or smth but sometimes i just DONT want to be as talkative as i usually am heh,, /nm /gen 
 ![h](https://files.catbox.moe/u6ss7i.jpg)
 
-![h](https://files.catbox.moe/t4w0df.gif)
+
 
 ![h](https://files.catbox.moe/y00orp.png)
 ![h](https://files.catbox.moe/i0vztj.png)
