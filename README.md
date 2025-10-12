@@ -5,8 +5,10 @@
 ![h](https://files.catbox.moe/tu3ex4.jpg)
 ![h](https://files.catbox.moe/wobsjo.gif)~~pompom/blaze/bingo~~ ,, 
 he/she/they .
-![h](https://files.catbox.moe/wobsjo.gif)im omnisexual ♡ i LOVE visual novels, otome, anything romance.
-                                                                                                                                                                                                                                          
+
+
+ ![h](https://files.catbox.moe/wobsjo.gif)im omnisexual ♡ i LOVE visual novels, otome, anything romance.
+                                                                                                                                                                                                                                         
 
 ![h](https://files.catbox.moe/wobsjo.gif)   i <3 vkei, painting,drawing,sewing,, i listen to JILUKA, The GazettE, dadaroma,gulu gulu,kebyo and so on.                             
 ![h](https://files.catbox.moe/z3rp0h.gif)
