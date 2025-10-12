@@ -11,6 +11,7 @@
 he/she/they .
 
 
+
  ![h](https://files.catbox.moe/wobsjo.gif)im omnisexual/omniromantic/lesbian/panromantic/pansexual, ISTP ♡ i LOVE visual novels, otome, anything romance.
                                                                                                                                                                                                                                          
 
