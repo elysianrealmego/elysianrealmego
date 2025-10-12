@@ -11,7 +11,7 @@
 he/she/they .
 
 
- ![h](https://files.catbox.moe/wobsjo.gif)im omnisexual ♡ i LOVE visual novels, otome, anything romance.
+ ![h](https://files.catbox.moe/wobsjo.gif)im omnisexual/omniromantic/lesbian/panromantic/pansexual, ISTP ♡ i LOVE visual novels, otome, anything romance.
                                                                                                                                                                                                                                          
 
 ![h](https://files.catbox.moe/wobsjo.gif)   i <3 vkei, painting,drawing,sewing,, i listen to JILUKA, The GazettE, dadaroma,gulu gulu,kebyo and so on.                             
