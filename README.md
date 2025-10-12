@@ -1,5 +1,5 @@
 ![h](https://files.catbox.moe/2j2mdq.png)
-          ![](https://komarev.com/ghpvc/?elysianrealmego&color=ff69b4)![](https://komarev.com/ghpvc/?username=elysianrealmego=ff69b4)
+          ![](https://komarev.com/ghpvc/?elysianrealmego&=ff69b4)![](https://komarev.com/ghpvc/?username=elysianrealmego=ff69b4)
 
 
 ![h](https://files.catbox.moe/5q3htv.gif) <font color="red">୨୧“ **s**he has spread open her arms 2 love every part of *humanity*; be it strongest large parts 2 the fragile small parts. ”୨୧</font>![h](https://files.catbox.moe/5q3htv.gif)
