@@ -1,5 +1,5 @@
 ![h](https://files.catbox.moe/2j2mdq.png)
-![h](https://files.catbox.moe/5q3htv.gif) <font color="pink">୨୧“ **s**he has spread open her arms 2 love every part of *humanity*; be it strongest large parts 2 the fragile small parts. ”୨୧</font>![h](https://files.catbox.moe/5q3htv.gif)
+![h](https://files.catbox.moe/5q3htv.gif) <font color="red">୨୧“ **s**he has spread open her arms 2 love every part of *humanity*; be it strongest large parts 2 the fragile small parts. ”୨୧</font>![h](https://files.catbox.moe/5q3htv.gif)
 ![h](https://files.catbox.moe/g0gxg5.gif)
 ![h](https://files.catbox.moe/hk2ewk.gif)⊹ ⊱ “ 4 **that** reason, she hopes that *this* sacrifice of hers can bring more beautiful things 2 humanity come 2 life.”⊰ ✧ ![h](https://files.catbox.moe/hk2ewk.gif)
 ![h](https://files.catbox.moe/tu3ex4.jpg)
