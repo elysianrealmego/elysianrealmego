@@ -33,6 +33,5 @@ he/she/they .
 ![h](https://files.catbox.moe/bwb375.gif)
 ![h](https://files.catbox.moe/xejtpj.gif)
 ![h](https://files.catbox.moe/3ruyem.gif)
-![h](https://files.catbox.moe/wkgxnv.gif)
 ![h](https://files.catbox.moe/hxvufr.png)
 ![h](https://files.catbox.moe/lz2wwd.png)
