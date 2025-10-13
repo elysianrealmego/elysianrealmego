@@ -1,8 +1,7 @@
 ![h](https://files.catbox.moe/2j2mdq.png)
     
  <p align="center"> <img src="
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=elysianrealmego&color=fadce9&style=plastic&label=⠀⠀🎀⠀⠀) />
-</p>
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=elysianrealmego&color=fadce9&style=plastic&label=⠀⠀🎀⠀⠀) 
 
 
 ![h](https://files.catbox.moe/5q3htv.gif) <font color="red">୨୧“ **s**he has spread open her arms 2 love every part of *humanity*; be it strongest large parts 2 the fragile small parts. ”୨୧</font>![h](https://files.catbox.moe/5q3htv.gif)
