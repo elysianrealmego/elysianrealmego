@@ -1,6 +1,5 @@
 ![h](https://files.catbox.moe/2j2mdq.png)
     
-<p align="center">
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=elysianrealmego&color=fadce9&style=plastic&label=⠀⠀🎀⠀⠀)  
 
 
