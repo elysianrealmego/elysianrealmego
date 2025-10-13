@@ -2,7 +2,7 @@
     
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=angelweep&label=　　HERRSCHEROFHUMAN　🌸　　　&color=fadce9&style=for-the-badge" alt="elysianrealmego" 
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=elysianrealmego&color=fadce9&style=plastic&label=⠀⠀🎀⠀⠀)  />
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=elysianrealmego&color=fadce9&style=plastic&label=⠀⠀🎀⠀⠀)  
 
 
 ![h](https://files.catbox.moe/5q3htv.gif) <font color="red">୨୧“ **s**he has spread open her arms 2 love every part of *humanity*; be it strongest large parts 2 the fragile small parts. ”୨୧</font>![h](https://files.catbox.moe/5q3htv.gif)
