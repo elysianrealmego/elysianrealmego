@@ -1,6 +1,6 @@
 ![h](https://files.catbox.moe/2j2mdq.png)
     
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=angelweep&label=　　ELYSIA　🌸　　　&color=fadce9&style=for-the-badge" alt="elysianrealmego" />
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=angelweep&label=　　herrscher of human:ego　🌸　　　&color=fadce9&style=for-the-badge" alt="elysianrealmego" />
 
 ![h](https://files.catbox.moe/5q3htv.gif) <font color="red">୨୧“ **s**he has spread open her arms 2 love every part of *humanity*; be it strongest large parts 2 the fragile small parts. ”୨୧</font>![h](https://files.catbox.moe/5q3htv.gif)
 ![h](https://files.catbox.moe/g0gxg5.gif)
