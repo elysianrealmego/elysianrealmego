@@ -2,7 +2,7 @@
     
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=angelweep&label=　　HERRSCHEROFHUMAN　🌸　　　&color=fadce9&style=for-the-badge" alt="elysianrealmego" ⋆. 𐙚 ˚
 
-ʚ♡⃛ɞ
+
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=elysianrealmego&color=fadce9&style=plastic&label=⠀⠀🎀⠀⠀)  
 
