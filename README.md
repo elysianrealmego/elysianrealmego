@@ -1,6 +1,6 @@
 ![h](https://files.catbox.moe/2j2mdq.png)
     
- <p align="center"> <img src="https://komarev.com/ghpvc/?username=elysianrealmego&label=　　HERRSCHEROFHUMAN　🌸　　　&color=FA96A1&style=plastic" alt="elysianrealmego" />
+ <p align="center"> <img src="https://komarev.com/ghpvc/?username=elysianrealmego&label=　　HERRSCHEROFHUMAN　🌸　　　&color=fadce9&style=plastic" alt="elysianrealmego" />
 
 
 
