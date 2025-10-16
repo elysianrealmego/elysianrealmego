@@ -1,4 +1,4 @@
-![h](https://files.catbox.moe/2j2mdq.png)
+![h](https://files.catbox.moe/cag3hg.png)
     
  <p align="center"> <img src="https://komarev.com/ghpvc/?username=elysianrealmego&label=　　HERRSCHEROFHUMAN　🌸　　　&color=fadce9&style=plastic" alt="elysianrealmego" />
 
@@ -40,4 +40,4 @@ im omnisexual/omniromantic/lesbian/panromantic/pansexual, ISTP ♡ i LOVE visual
 
 ![h](https://files.catbox.moe/c0xge9.jpg)
 ![h](https://files.catbox.moe/z3rp0h.gif)
-![h](https://files.catbox.moe/lz2wwd.png)
+![h](https://files.catbox.moe/z3o5is.png)
