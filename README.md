@@ -27,7 +27,7 @@ im omnisexual/omniromantic/lesbian/panromantic/pansexual, ISTP ♡ i LOVE visual
 ![h](https://files.catbox.moe/z3rp0h.gif)
 ![h](https://files.catbox.moe/c0xge9.jpg) 
 ![h](https://files.catbox.moe/wobsjo.gif)also, use tonetags with me or js be patient i ain't autistic or smth but sometimes i just DONT want to be as talkative as i usually am heh,, /nm /gen 
-![h](https://files.catbox.moe/u6ss7i.jpg)
+![h](https://files.catbox.moe/cvwt3n.gif)
 
 
 
