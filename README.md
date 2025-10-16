@@ -7,7 +7,7 @@
 ![h](https://files.catbox.moe/5q3htv.gif) <font color="red">୨୧“ **s**he has spread open her arms 2 love every part of *humanity*; be it strongest large parts 2 the fragile small parts. ”୨୧</font>![h](https://files.catbox.moe/5q3htv.gif)
 ![h](https://files.catbox.moe/8vislb.gif)
 ![h](https://files.catbox.moe/hk2ewk.gif)⊹ ⊱ “ 4 **that** reason, she hopes that *this* sacrifice of hers can bring more beautiful things 2 humanity come 2 life.”⊰ ✧ ![h](https://files.catbox.moe/hk2ewk.gif)
-![h](https://files.catbox.moe/tu3ex4.jpg)
+![h](https://files.catbox.moe/x2wx40.gif)
 ![h](https://files.catbox.moe/wobsjo.gif)~~pompom/blaze/bingo~~ 20.,, 
 he/she/they . ro/hu/eng. ♡ [sec acc](https://github.com/solivanbrugmansia)
 
