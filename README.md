@@ -23,6 +23,9 @@ im omnisexual/omniromantic/lesbian/panromantic/pansexual, ISTP ♡ i LOVE visual
 ![h](https://files.catbox.moe/c0xge9.jpg)
 ![h](https://files.catbox.moe/wobsjo.gif)on pt: im always active,sometimes offtab. w2i / c+h is fine as long as you dont come to harass me.
 
+![h](https://files.catbox.moe/8r2mqf.png)
+
+
 ![h](https://files.catbox.moe/wobsjo.gif)also dni: ~~shadowvanilla~~, and any darkships like that, tadc, kpdh, dandy,etc,, 
 ![h](https://files.catbox.moe/z3rp0h.gif)
 ![h](https://files.catbox.moe/c0xge9.jpg) 
