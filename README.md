@@ -8,7 +8,7 @@
 ![h](https://files.catbox.moe/8vislb.gif)
 ![h](https://files.catbox.moe/hk2ewk.gif)⊹ ⊱ “ 4 **that** reason, she hopes that *this* sacrifice of hers can bring more beautiful things 2 humanity come 2 life.”⊰ ✧ ![h](https://files.catbox.moe/hk2ewk.gif)
 ![h](https://files.catbox.moe/x2wx40.gif)
-![h](https://files.catbox.moe/wobsjo.gif)~~pompom/blaze/bingo~~ 20.,, 
+![h](https://files.catbox.moe/wobsjo.gif)~~pompom/blaze/bingo~~ .,, 
 he/she/they . ro/hu/eng. ♡ [sec acc](https://github.com/solivanbrugmansia)
 
 
