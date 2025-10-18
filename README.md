@@ -3,6 +3,10 @@
  <p align="center"> <img src="https://komarev.com/ghpvc/?username=elysianrealmego&label=　　HERRSCHEROFHUMAN　🌸　　　&color=fadce9&style=plastic" alt="elysianrealmego" />
 
 
+# [ATABOOK💗](https://saracino.atabook.org/)
+
+
+
 ![h](https://files.catbox.moe/5q3htv.gif) <font color="red">୨୧“ **s**he has spread open her arms 2 love every part of *humanity*; be it strongest large parts 2 the fragile small parts. ”୨୧</font>![h](https://files.catbox.moe/5q3htv.gif)
 ![h](https://files.catbox.moe/8vislb.gif)
 ![h](https://files.catbox.moe/hk2ewk.gif)⊹ ⊱ “ 4 **that** reason, she hopes that *this* sacrifice of hers can bring more beautiful things 2 humanity come 2 life.”⊰ ✧ ![h](https://files.catbox.moe/hk2ewk.gif)
