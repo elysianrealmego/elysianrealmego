@@ -18,7 +18,7 @@ he/she/they . ro/hu/eng. ♡ [sec acc](https://github.com/solivanbrugmansia)
 
  
 ![h](https://files.catbox.moe/wobsjo.gif)
-im omnisexual/omniromantic/lesbian/panromantic/pansexual, ISTP ♡ i LOVE visual novels, otome, anything romance.
+im omnisexual/lesbian/nonbinary & lesbian aligned, ISTP ♡ i LOVE visual novels, otome, anything romance.
                                                                                                                                                                                                                                          
 
 ![h](https://files.catbox.moe/wobsjo.gif)   i <3 vkei, painting,drawing,sewing,, i listen to JILUKA, The GazettE, dadaroma,gulu gulu,kebyo and so on.                             
