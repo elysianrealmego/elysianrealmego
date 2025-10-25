@@ -3,7 +3,7 @@
  <p align="center"> <img src="https://komarev.com/ghpvc/?username=elysianrealmego&label=　　HERRSCHEROFHUMAN　🌸　　　&color=fadce9&style=plastic" alt="elysianrealmego" />
 
 
-## [ATABOOK💗](https://elysianrealmego.atabook.org/)
+## [ATABOOK💗](https://elysianrealmego.atabook.org/) ## [STRAWPAGE🦢](https://foretnoir.straw.page)
 𓂃˖˳·˖ ִֶָ ⋆🎀⋆  ִֶָ˖·˳˖𓂃 ִֶָ
 
 
