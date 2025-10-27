@@ -1,50 +1,27 @@
-![h](https://files.catbox.moe/cag3hg.png)
-    
  <p align="center"> <img src="https://komarev.com/ghpvc/?username=elysianrealmego&label=　　HERRSCHEROFHUMAN　🌸　　　&color=fadce9&style=plastic" alt="elysianrealmego" />
 
-
-## [ATABOOK💗](https://elysianrealmego.atabook.org/) ♡ [STRAWPAGE](https://foretnoir.straw.page)
-𓂃˖˳·˖ ִֶָ ⋆🎀⋆  ִֶָ˖·˳˖𓂃 ִֶָ
-
-
-![h](https://files.catbox.moe/5q3htv.gif) <font color="red">୨୧“ **s**he has spread open her arms 2 love every part of *humanity*; be it strongest large parts 2 the fragile small parts. ”୨୧</font>![h](https://files.catbox.moe/5q3htv.gif)
-![h](https://files.catbox.moe/8vislb.gif)
-![h](https://files.catbox.moe/hk2ewk.gif)⊹ ⊱ “ 4 **that** reason, she hopes that *this* sacrifice of hers can bring more beautiful things 2 humanity come 2 life.”⊰ ✧ ![h](https://files.catbox.moe/hk2ewk.gif)
-
-
-![h](https://files.catbox.moe/wobsjo.gif)~~pompom/blaze/bingo~~ .,, 
-he/they . ro/hu/eng.🇹🇩🇭🇺 ♡ [sec acc](https://github.com/solivanbrugmansia)
+![h](https://files.catbox.moe/qjyved.jpg)
+♡[straw](https://foretnoir.straw.page)🍩
+♡[ata](https://elysianrealmego.atabook.org/)
+🧁
+[rentry](https://rentry.co/foretnoir)
+🍰
+♡ [prns.page](https://en.pronouns.page/@foretnoir_)
+![h](https://files.catbox.moe/dtv0vh.jpg)
+![h](https://files.catbox.moe/q8fv3y.GIF)read byi ^_^ ,, ✦ c+h and w2i pls,i love int with everyone okay?
 
 
 
- 
-![h](https://files.catbox.moe/wobsjo.gif)
-im omnisexual/lesbian/nonbinary & lesbian aligned, ISTP ♡ i LOVE visual novels, otome, anything romance.
-                                                                                                                                                                                                                                         
-
-![h](https://files.catbox.moe/wobsjo.gif)   i <3 vkei, painting,drawing,sewing,, i listen to JILUKA, The GazettE, dadaroma,gulu gulu,kebyo and so on.                             
-![h](https://files.catbox.moe/z3rp0h.gif)
-![h](https://files.catbox.moe/c0xge9.jpg)
-![h](https://files.catbox.moe/wobsjo.gif)on pt: im always active,sometimes offtab. w2i / c+h is fine as long as you dont come to harass me.
-
-![h](https://files.catbox.moe/8r2mqf.png)
+![h](https://files.catbox.moe/q8fv3y.GIF)if im offtb and might not rsp,wsp ,,!!
 
 
-![h](https://files.catbox.moe/wobsjo.gif)also dni: ~~shadowvanilla~~, and any darkships like that, tadc, kpdh, dandy,etc,, 
-![h](https://files.catbox.moe/z3rp0h.gif)
-![h](https://files.catbox.moe/c0xge9.jpg) 
-![h](https://files.catbox.moe/wobsjo.gif)also, use tonetags with me or js be patient i ain't autistic or smth but sometimes i just DONT want to be as talkative as i usually am heh,, /nm /gen 
-![h](https://files.catbox.moe/cvwt3n.gif)
+![h](https://files.catbox.moe/q8fv3y.GIF)
+also uhh read my straw/rentry pls :3 ?!
+![h](https://files.catbox.moe/nmscuu.jpg)
 
-
-
-![h](https://files.catbox.moe/wobsjo.gif)![h](https://files.catbox.moe/y00orp.png)
-![h](https://files.catbox.moe/wobsjo.gif)![h](https://files.catbox.moe/i0vztj.png)
-![h](https://files.catbox.moe/wobsjo.gif)![h](https://files.catbox.moe/qkgkvr.png)
-![h](https://files.catbox.moe/wobsjo.gif)![h](https://files.catbox.moe/bwb375.gif)
-![h](https://files.catbox.moe/wobsjo.gif)![h](https://files.catbox.moe/xejtpj.gif)
-![h](https://files.catbox.moe/wobsjo.gif)![h](https://files.catbox.moe/3ruyem.gif)
-
-![h](https://files.catbox.moe/c0xge9.jpg)
-![h](https://files.catbox.moe/z3rp0h.gif)
-![h](https://files.catbox.moe/z3o5is.png)
+![h](https://files.catbox.moe/0twenb.png)
+![h](https://files.catbox.moe/hujbw0.png)
+![h](https://files.catbox.moe/hltcu3.gif) 𝗁𝗂 𝗌𝗎𝗇𝗌𝗁𝗂𝗇𝖾, 𝗆𝗒 𝘀𝗼𝘂𝗹 𝗴𝗲𝗺 𝗂𝗌 𝗍𝖺𝗂𝗇𝗍𝗂𝗇𝗀,,.. 𝖽𝗈 𝗒𝗈𝗎 𝗁𝖺𝗏𝖾 𝖺 𝗀𝗋𝗂𝖾𝖿 𝗌𝖾𝖾𝖽? /ref 
+## ![h](https://files.catbox.moe/arrej7.png)![h](https://files.catbox.moe/wgpzdg.png)![h](https://files.catbox.moe/jdfsns.png)![h](https://files.catbox.moe/y6ctf9.png)![h](https://files.catbox.moe/38tbhj.png)![h](https://files.catbox.moe/txys7z.png)
+![h](https://files.catbox.moe/sqhbt4.jpg)
+                                                                                                                                              
