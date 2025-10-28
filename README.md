@@ -4,7 +4,7 @@
 ♡[straw](https://foretnoir.straw.page)🍩
 ♡[ata](https://elysianrealmego.atabook.org/)
 🧁
-[rentry](https://rentry.co/foretnoir)
+[rentry](https://rentry.co/forettnoir)
 🍰
 ♡ [prns.page](https://en.pronouns.page/@foretnoir_)
 ![h](https://files.catbox.moe/dtv0vh.jpg)
