@@ -16,7 +16,7 @@
 
 
 ![h](https://files.catbox.moe/q8fv3y.GIF)
-also uhh read my straw/rentry pls :3 ?!
+also uhh if im awkward when you whisp 2 me pls b patient ok??? btw int if you throw yumeships. YALL R PEAK 🥺
 ![h](https://files.catbox.moe/nmscuu.jpg)
 
 ![h](https://files.catbox.moe/0twenb.png)
