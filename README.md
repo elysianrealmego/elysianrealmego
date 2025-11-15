@@ -1,7 +1,7 @@
  <p align="center"> <img src="https://komarev.com/ghpvc/?username=elysianrealmego&label=　　HERRSCHEROFHUMAN　🌸　　　&color=fadce9&style=plastic" alt="elysianrealmego" />
 
 ![h](https://files.catbox.moe/qjyved.jpg)
-♡[straw](https://foretnoir.straw.page)🍩
+♡[straw](https://020147.straw.page)🍩
 ♡[ata](https://elysianrealmego.atabook.org/)
 🧁
 [rentry](https://rentry.co/forettnoir)
