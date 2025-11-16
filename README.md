@@ -1,13 +1,9 @@
- <p align="center"> <img src="https://komarev.com/ghpvc/?username=elysianrealmego&label=　　HERRSCHEROFHUMAN　🌸　　　&color=fadce9&style=plastic" alt="elysianrealmego" />
+ <p align="center"> <img src="https://komarev.com/ghpvc/?username=elysianrealmego&label=　　HERRSCHEROFHUMAN　🎀　　　&color=fadce9&style=plastic" alt="elysianrealmego" />
 
-![h](https://files.catbox.moe/qjyved.jpg)
-♡[straw](https://020147.straw.page)🍩
-♡[ata](https://elysianrealmego.atabook.org/)
-🧁
-[rentry](https://rentry.co/forettnoir)
-🍰
-♡ [prns.page](https://en.pronouns.page/@foretnoir_)
-![h](https://files.catbox.moe/dtv0vh.jpg)
+![h](https://files.catbox.moe/ej9d8g.png)
+
+![h](https://files.catbox.moe/6oispy.png)
+![h](https://files.catbox.moe/ufdpwu.png)
 ![h](https://files.catbox.moe/q8fv3y.GIF)read byi ^_^ ,, ✦ c+h and w2i pls,i love int with everyone okay?
 
 
