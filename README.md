@@ -5,15 +5,15 @@
 
 ![h](https://files.catbox.moe/6oispy.png)
 ![h](https://files.catbox.moe/qglay2.jpg)
-![h](https://files.catbox.moe/q8fv3y.GIF)read byi ^_^ ,, ✦ c+h and w2i pls,i love int with everyone okay?
+![h](https://files.catbox.moe/q8fv3y.GIF)read byi, c+h / int / w2i freely unless i have a dni in my title  ,,  
 
 
 
-![h](https://files.catbox.moe/q8fv3y.GIF)if im offtb and might not rsp,wsp ,,!!
+![h](https://files.catbox.moe/q8fv3y.GIF)HoHe irl, trust. tonetags pls pls ok?? 
 
 
 ![h](https://files.catbox.moe/q8fv3y.GIF)
-also uhh if im awkward when you whisp 2 me pls b patient ok??? btw int if you throw yumeships. YALL R PEAK 🥺
+also uhh if im awkward when you whisp 2 me pls b patient ok?? ok.
 ![h](https://files.catbox.moe/nmscuu.jpg)
 
 ![h](https://files.catbox.moe/0twenb.png)
