@@ -4,6 +4,7 @@
 ![h](https://files.catbox.moe/6nnw1h.gif)[straw](https://020147.straw.page)
 ![h](https://files.catbox.moe/37ld1t.gif)[prns.page](https://en.pronouns.page/@foretnoir_)
 ![h](https://files.catbox.moe/dyxlmj.gif)
+
  <p align="center"> <img src="https://komarev.com/ghpvc/?username=elysianrealmego&label=　　HERRSCHEROFHUMAN　🎀　　　&color=fadce9&style=plastic" alt="elysianrealmego" />
 
 ![h](https://files.catbox.moe/ej9d8g.png)
