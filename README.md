@@ -14,7 +14,7 @@
 
 ![h](https://files.catbox.moe/q8fv3y.GIF)
 also uhh if im awkward when you whisp 2 me pls b patient ok?? ok.
-![h](https://files.catbox.moe/nmscuu.jpg)
+![h](https://files.catbox.moe/ufdpwu.png)
 
 ![h](https://files.catbox.moe/0twenb.png)
 ![h](https://files.catbox.moe/hujbw0.png)
