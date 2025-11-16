@@ -15,10 +15,11 @@
 
 
 
-![h](https://files.catbox.moe/q8fv3y.GIF)HoHe irl, trust. tonetags pls pls ok?? 
+![h](https://files.catbox.moe/q8fv3y.GIF)[sec @accounts](https://github.com/020147) [🎀](https://github.com/solivanbrugmansia)
 
 
 ![h](https://files.catbox.moe/q8fv3y.GIF)
 also uhh if im awkward when you whisp 2 me pls b patient ok?? ok.
-![h](https://files.catbox.moe/ufdpwu.png)
+![h](https://files.catbox.moe/ukxiap.gif)
+![h](https://files.catbox.moe/fslcyk.jpg)
                                                                                                     
