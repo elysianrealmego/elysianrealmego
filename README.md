@@ -16,8 +16,7 @@
 also uhh if im awkward when you whisp 2 me pls b patient ok?? ok.
 ![h](https://files.catbox.moe/ufdpwu.png)
 
-![h](https://files.catbox.moe/0twenb.png)
-![h](https://files.catbox.moe/hujbw0.png)
+![h](https://files.catbox.moe/ukxiap.gif)
 ![h](https://files.catbox.moe/hltcu3.gif) 𝗁𝗂 𝗌𝗎𝗇𝗌𝗁𝗂𝗇𝖾, 𝗆𝗒 𝘀𝗼𝘂𝗹 𝗴𝗲𝗺 𝗂𝗌 𝗍𝖺𝗂𝗇𝗍𝗂𝗇𝗀,,.. 𝖽𝗈 𝗒𝗈𝗎 𝗁𝖺𝗏𝖾 𝖺 𝗀𝗋𝗂𝖾𝖿 𝗌𝖾𝖾𝖽? /ref 
 
 
