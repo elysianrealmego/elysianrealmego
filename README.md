@@ -1,6 +1,6 @@
 ![h](https://files.catbox.moe/ukxiap.gif)
 ![h](https://files.catbox.moe/48ykpg.gif)[ata](https://elysianrealmego.atabook.org/)
-![h](https://files.catbox.moe/09424v.gif)[rentry](https://rentry.co/foretnoir)
+![h](https://files.catbox.moe/09424v.gif)[rentry](https://rentry.co/forettnoir)
 ![h](https://files.catbox.moe/6nnw1h.gif)[straw](https://020147.straw.page)
 ![h](https://files.catbox.moe/37ld1t.gif)[prns.page](https://en.pronouns.page/@foretnoir_)
 ![h](https://files.catbox.moe/48ykpg.gif)
