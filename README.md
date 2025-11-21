@@ -95,10 +95,16 @@ o(〃＾▽＾〃)o ![h](https://files.catbox.moe/vih0ba.jpg)
 
 🎀![h](https://files.catbox.moe/uexxmd.gif)
 🌸![h](https://files.catbox.moe/jyjn12.gif)
-💗![h](https://files.catbox.moe/m9zj9y.gif)🎀
+💗![h](https://files.catbox.moe/m9zj9y.gif)
+
+![h](https://files.catbox.moe/yzy559.gifv) i </3: when you're going home and its raining and u have no umbrella, darkness, water (i mean if you drown or smth you know), when you're drawing in public and somebody takes a look in your sketchbook 💔 , vegetables in a way (im picky) ![h](https://files.catbox.moe/02uu9w.gif)
 
 ![h](https://files.catbox.moe/ir6wy7.gif)
 
+![h](https://files.catbox.moe/68udem.gif)
+![h](https://files.catbox.moe/8kfbhk.gif)
+![h](https://files.catbox.moe/vh4c4q.gif)
+![h](https://files.catbox.moe/ja43gc.gif)
 
 ![h](https://files.catbox.moe/bqoe6f.jpg)
 
