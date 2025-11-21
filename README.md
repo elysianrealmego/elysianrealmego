@@ -89,7 +89,8 @@ o(〃＾▽＾〃)o ![h](https://files.catbox.moe/vih0ba.jpg)
 ૮ ˶ˆ ﻌ ˆ˶ ა discord is **.0201470** 🥺
 ![h](https://files.catbox.moe/iu5bp9.gif) 🌸 ❀‎ܓ(｡◠ ꇴ ◠｡ ) 🎀 ꒰* ॢꈍ◡ꈍ ॢ꒱.*˚‧ any other socials : ig ‘ 0201470 , tt : _0201470 , ..🌸
 ![h](https://files.catbox.moe/zqh2ur.gif)
-![h](https://files.catbox.moe/e2zret.gif) 🎀 𐔌՞⁔•͈ ·̫ •͈⁔՞𐦯 i <3: sweets, anything related to romance, visual kei, animals yes, color crimson red, forest green, pink. ![h](https://files.catbox.moe/ii4nn1.gif)
+![h](https://files.catbox.moe/e2zret.gif)
+ 🎀 𐔌՞⁔•͈ ·̫ •͈⁔՞𐦯 i <3: sweets, anything related to romance, visual kei, animals yes, color crimson red, forest green, pink. ![h](https://files.catbox.moe/ii4nn1.gif)
 ![h](https://files.catbox.moe/fko81r.gif)
 ![h](https://files.catbox.moe/zi8v95.jpg)
 
