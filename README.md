@@ -50,8 +50,10 @@ fictosexual 💗   read my [prns page](https://en.pronouns.page/@foretnoir_) for
 ![h](https://files.catbox.moe/rmnx36.gif)
 ![h](https://files.catbox.moe/y00orp.png) 
 ![h](https://files.catbox.moe/nt6ubo.gif) 
-
+![h](https://files.catbox.moe/lek7yd.gifv)
 ![h](https://files.catbox.moe/wobsjo.gif)
+my dni list is kinda simple: the normal criteria i guess and weirdos. no seriously if i harm you or anything just unfollow/block anything 😢 ,, 🎀
+
 
 
                                                                   
