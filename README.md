@@ -4,6 +4,8 @@
 
 ![h](https://files.catbox.moe/8a7iz3.png)
 ![h](https://files.catbox.moe/evzd3x.png)
+![h](https://files.catbox.moe/1jy4d1.gif)
+![h](https://files.catbox.moe/gbxwhu.jpg)
  
 ![h](https://files.catbox.moe/r243mz.jpg)**blaze** or *pompom* ,, 🎀
 
