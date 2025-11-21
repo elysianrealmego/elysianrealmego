@@ -109,7 +109,7 @@ o(〃＾▽＾〃)o ![h](https://files.catbox.moe/vih0ba.jpg)
 
 
 ໒꒰ྀི⁄ ⁄>⁄ ⁄ <⁄ ⁄꒱ྀི১ , 🎀 ![h](https://files.catbox.moe/yzy559.gifv)
-![h](https://files.catbox.moe/q9hiy0.gifv) ໒꒰ྀི∩˃ ᵕ ˂∩꒱ྀི১ 🌸 ![h](https://files.catbox.moe/9jmtm4.jpg) ,, i kin sana futaba,homura akemi, bebe, herrscher of sentience, seele vollerei, parfait cookie![h](https://files.catbox.moe/ybnmds.gif) (—⸝⸝⸝ᯅ⸝⸝⸝ᗜ;) 🌸 ‘
+![h](https://files.catbox.moe/q9hiy0.gifv) ໒꒰ྀི∩˃ ᵕ ˂∩꒱ྀི১ 🌸 ![h](https://files.catbox.moe/9jmtm4.jpg) ,, i kin sana futaba,homura akemi, bebe, herrscher of sentience, seele vollerei, parfait cookie![h](https://files.catbox.moe/ybnmds.gif) (—⸝⸝⸝ᯅ⸝⸝⸝ᗜ;) 🌸 ‘ ![h](https://files.catbox.moe/q9hiy0.gifv)
 
 ![h](https://files.catbox.moe/bqoe6f.jpg)
 
