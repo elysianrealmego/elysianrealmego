@@ -32,7 +32,7 @@
 ![h](https://files.catbox.moe/s2seq7.gif) 🌸 nonbinary,      omnisexual,, 🎀 polyromantic /  
 lesbian aligned 🌸    
 fictosexual 💗   read my [prns page](https://en.pronouns.page/@foretnoir_) for more     
-      ![h]https://files.catbox.moe/s2seq7.gif) 🎀 i love visual novels, otome obviously. ,, i play a lot of games soo yeah 🥺 ,, 
+      ![h](https://files.catbox.moe/s2seq7.gif) 🎀 i love visual novels, otome obviously. ,, i play a lot of games soo yeah 🥺 ,, 
 
 
 ![h](https://files.catbox.moe/ggjyx7.gif) **#1** yumeshipper , i dont care!! oc x canon trust heh  !! 
