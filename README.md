@@ -78,6 +78,11 @@ o(〃＾▽＾〃)o ![h](https://files.catbox.moe/vih0ba.jpg)
 🎀![h](https://files.catbox.moe/g85o0e.gif)
 🌸![h](https://files.catbox.moe/qmckfr.gif)
 💗![h](https://files.catbox.moe/h0gbh9.gif)
+˖ ݁𖥔 ݁˖ 𐙚 ˖ ݁𖥔 ݁˖ , ໒꒰ྀི∗ɞ̴̶̷ ·̮ ɞ̴̶̷∗꒱ྀིა
+
+![h](https://files.catbox.moe/vz833i.jpg)
+
+![h](https://files.catbox.moe/k12euv.jpg)
 
 
                                                                   
