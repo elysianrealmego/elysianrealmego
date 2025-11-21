@@ -19,8 +19,14 @@
 
  🎀 ‘ bingo,
  amoris ’ ,
-     pom   
+     pom , p-chan  , pien/ref  
 
 
  🩷 blazie 🎀
- pookie bear 🌸                                                                                               
+ pookie bear (gib more ok🥺)🌸                   
+![h](https://files.catbox.moe/bqoe6f.jpg)
+
+![h](https://files.catbox.moe/ciy990.gif)
+
+
+![h](https://files.catbox.moe/s2seq7.gif) 🌸 nonbinary,      omnisexual,, 🎀 polyromantic /  lesbian aligned 🌸 fictosexual 💗 read my [prns page](https://en.pronouns.page/@foretnoir_) for more                                                                       
