@@ -17,6 +17,10 @@
     ![h](https://files.catbox.moe/vk2tly.gif) 
        
 
- 🎀 ‘ bingo, amoris ’ ,
-     pom    🩷 blazie 🎀
+ 🎀 ‘ bingo,
+ amoris ’ ,
+     pom   
+
+
+ 🩷 blazie 🎀
  pookie bear 🌸                                                                                               
