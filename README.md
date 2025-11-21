@@ -48,6 +48,10 @@ fictosexual 💗   read my [prns page](https://en.pronouns.page/@foretnoir_) for
 ![h](https://files.catbox.moe/zbfyea.jpg)
 ![h](https://files.catbox.moe/sbznh5.jpg)
 ![h](https://files.catbox.moe/rmnx36.gif)
+![h](https://files.catbox.moe/y00orp.png) 
+![h](https://files.catbox.moe/nt6ubo.gif) 
+
+![h](https://files.catbox.moe/wobsjo.gif)
 
 
                                                                   
