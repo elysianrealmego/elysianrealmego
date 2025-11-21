@@ -106,6 +106,11 @@ o(〃＾▽＾〃)o ![h](https://files.catbox.moe/vih0ba.jpg)
 ![h](https://files.catbox.moe/vh4c4q.gif)
 ![h](https://files.catbox.moe/ja43gc.gif)
 
+
+
+໒꒰ྀི⁄ ⁄>⁄ ⁄ <⁄ ⁄꒱ྀི১ , 🎀 ![h](https://files.catbox.moe/yzy559.gifv)
+![h](https://files.catbox.moe/q9hiy0.gifv) ໒꒰ྀི∩˃ ᵕ ˂∩꒱ྀི১ 🌸 ![h](https://files.catbox.moe/9jmtm4.jpg) ,, i kin sana futaba,homura akemi, bebe, herrscher of sentience, seele vollerei, parfait cookie![h](https://files.catbox.moe/ybnmds.gif) (—⸝⸝⸝ᯅ⸝⸝⸝ᗜ;) 🌸 ‘
+
 ![h](https://files.catbox.moe/bqoe6f.jpg)
 
 ![h](https://files.catbox.moe/s13f25.jpg)
