@@ -60,6 +60,16 @@ my dni list is kinda simple: the normal criteria i guess and weirdos. no serious
 ![h](https://files.catbox.moe/bwb375.gif)💗 [ata](https://elysianrealmego.atabook.org/)
 ![h](https://files.catbox.moe/k640in.gif)
 
+![h](https://files.catbox.moe/t4w0df.gif)
+![h](https://files.catbox.moe/1g2drs.gif)
+![h](https://files.catbox.moe/wobsjo.gif)
+໒꒰ྀི๑ᵔ ᵕ ᵔ๑꒱ྀིა ,, 🎀 on pt: c+h & w2i freely,, 🪽 im friendly besides i usually swear jokingly but i use tonetags okay 💗 
+i stay on hoyo / crk / twst area  🎀 ![h](https://files.catbox.moe/n6wmxz.png)
+o(〃＾▽＾〃)o ![h](https://files.catbox.moe/vih0ba.jpg)
+
+![h](https://files.catbox.moe/omcyy5.gif)
+![h](https://files.catbox.moe/0h3i4c.png)
+![h](https://files.catbox.moe/pzybgi.gif)
 
 
                                                                   
