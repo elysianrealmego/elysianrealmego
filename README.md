@@ -15,4 +15,8 @@
 
  ૮(˶ᵔᵕᵔ˶)ა°❀⋆.ೃ࿔*:･ ,, *other names*
     ![h](https://files.catbox.moe/vk2tly.gif) 
-        🎀 ‘ bingo, amoris ’ , pom    🩷 blazie 🎀 pookie bear 🌸                                                                                               
+       
+
+ 🎀 ‘ bingo, amoris ’ ,
+     pom    🩷 blazie 🎀
+ pookie bear 🌸                                                                                               
