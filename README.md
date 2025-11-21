@@ -85,4 +85,13 @@ o(〃＾▽＾〃)o ![h](https://files.catbox.moe/vih0ba.jpg)
 ![h](https://files.catbox.moe/k12euv.jpg)
 
 
+![h](https://files.catbox.moe/uslbpm.png) 🎀 
+૮ ˶ˆ ﻌ ˆ˶ ა discord is **.0201470** 🥺
+![h](https://files.catbox.moe/zi8v95.jpg)
+
+![h](https://files.catbox.moe/bqoe6f.jpg)
+
+![h](https://files.catbox.moe/s13f25.jpg)
+
+
                                                                   
