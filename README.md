@@ -50,9 +50,15 @@ fictosexual 💗   read my [prns page](https://en.pronouns.page/@foretnoir_) for
 ![h](https://files.catbox.moe/rmnx36.gif)
 ![h](https://files.catbox.moe/y00orp.png) 
 ![h](https://files.catbox.moe/nt6ubo.gif) 
-![h](https://files.catbox.moe/lek7yd.gifv)
 ![h](https://files.catbox.moe/wobsjo.gif)
 my dni list is kinda simple: the normal criteria i guess and weirdos. no seriously if i harm you or anything just unfollow/block anything 😢 ,, 🎀
+
+![h](https://files.catbox.moe/5hwn91.gif)
+   ![h](https://files.catbox.moe/uslbpm.png)
+🌸 ,, [rentry](https://rentry.co/forettnoir) ![h](https://files.catbox.moe/eco46p.gif) 
+🎀 [straw](https://020147.straw.page) 
+![h](https://files.catbox.moe/bwb375.gif)💗 [ata](https://elysianrealmego.atabook.org/)
+![h](https://files.catbox.moe/k640in.gif)
 
 
 
