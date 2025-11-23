@@ -119,7 +119,7 @@ seele vollerei, parfait cookie
 
 ![h](https://files.catbox.moe/wng1en.gif)
 ![h](https://files.catbox.moe/ybnmds.gif)
- (—⸝⸝⸝ᯅ⸝⸝⸝ᗜ;) 🌸 ‘ ![h](https://files.catbox.moe/bnb74l.gif)
+ (—⸝⸝⸝ᯅ⸝⸝⸝ᗜ;) 🌸. ‘ ![h](https://files.catbox.moe/bnb74l.gif)
 ![h](https://files.catbox.moe/3bnp2i.gif)
 ![h](https://files.catbox.moe/uexxmd.gif)
 ![h](https://files.catbox.moe/bqoe6f.jpg)
