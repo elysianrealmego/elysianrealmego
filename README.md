@@ -25,7 +25,7 @@
 
 
  🩷 blazie 🎀
- pookie bear (gib more ok🥺)🌸                   
+ pookie bear,WONDERBLAZE,meowlaze (gib more ok🥺)🌸                   
 ![h](https://files.catbox.moe/bqoe6f.jpg)
 
 ![h](https://files.catbox.moe/ciy990.gif)
