@@ -1,4 +1,4 @@
-
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7A0D2&width=435&lines=ELYSIAN+REALM)](https://git.io/typing-svg)
  ![h](https://files.catbox.moe/oc9yrt.png)
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=angelweep&label=　　HERRSCHEROFHUMAN　🌸　　　&color=fdd5df&style=flat" alt="angelweep" />
 
