@@ -5,20 +5,12 @@
 
 
 ![h](https://files.catbox.moe/meqsdz.gif)
-
-
-![h](https://files.catbox.moe/09424v.gif)
- [atabook](https://elysianrealmego.atabook.org/)   ![h](https://files.catbox.moe/7suiuj.gif)
- 
+![h](https://files.catbox.moe/09424v.gif) [atabook](https://elysianrealmego.atabook.org/)![h](https://files.catbox.moe/7suiuj.gif)
  [rentry](https://rentry.co/forettnoir) 
 ![h](https://files.catbox.moe/7suiuj.gif)
-
  [straw](https://020147.straw.page)  
-
 ![h](https://files.catbox.moe/jbm9tf.gif)
-
  [prns](https://en.pronouns.page/@foretnoir_) 
-
 ![h](https://files.catbox.moe/7suiuj.gif)
 ![h](https://files.catbox.moe/meqsdz.gif)
 
