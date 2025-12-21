@@ -1,7 +1,7 @@
 ![h](https://files.catbox.moe/nldrhx.png)
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=cd8ec0&width=435&lines=HERRSCHER+OF+HUMAN+🪽+EGO)](https://git.io/typing-svg)
 
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=angelweep&label=　　EGO　🪻　　　&cd8ec0=FA96A1&style=flat" alt="angelweep" />
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=angelweep&label=　　origin　🔮　　　&color=cd8ec0&style=flat" alt="angelweep" />
 
 ![h](https://files.catbox.moe/meqsdz.gif)
 
