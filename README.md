@@ -5,5 +5,5 @@
 
 ![h](https://files.catbox.moe/28jkml.gif)
 
-[about](https://guns.lol/020147)
+[about](https://020147.straw.page)
 ![h](https://files.catbox.moe/gpfo53.png)
