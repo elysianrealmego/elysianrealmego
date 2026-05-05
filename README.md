@@ -5,5 +5,3 @@
 
 ![h](https://files.catbox.moe/28jkml.gif)
 
-[about](https://020147.straw.page)
-![h](https://files.catbox.moe/gpfo53.png)
